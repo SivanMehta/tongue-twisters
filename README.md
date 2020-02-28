@@ -16,9 +16,9 @@ Regardless, you can compensate the patron saint of the draft train for the scant
 
 ---
 
-When on the way to Thailand, intending to evaluate a French-style bread in Kathmandu, the pair paid off the loans of a family of four, which was brought about with a verbally abusive warning from someone nicknamed after the author of “The Black Moth”.
+When on the way from Thailand, intending to evaluate a French-style bread in Kathmandu, the pair paid off the loans of a family of four, which was brought about with a verbally abusive warning from someone nicknamed after the author of “The Black Moth”.
 
-> On the jet to Phuket, en route to vet a baguette from Tibet, the duet offset the debt of the quartet, onset by an epithet threat from a sobriquet “Georgette”.
+> On the jet beset from Phuket, en route to vet a baguette from Tibet, the duet offset the debt of the quartet, onset by an epithet threat from a sobriquet “Georgette”.
 
 ---
 
