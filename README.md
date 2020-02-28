@@ -1,3 +1,9 @@
+In order to repair the mental health, or metaphorically “get out the pests”, of my enraged friend’s walking pattern, we had to get rid of his girlfriend’s insistence to spread (but oddly not bring in), lavishly adorned Middle Eastern license plates, which were meant to serve as enticing fashion pieces that were throwing off his balance.
+
+> To rehabilitate, or intellectually fumigate, the gait of my irate mate, we had to excommunicate the mandate of his straight date to proliferate (but oddly not repatriate) the ornate Kuwait nameplate, a counterweight meant to decorate and titillate.
+
+---
+
 In my opinion, if you’re truly interested in that lady, you should fix up your boat’s larger stabilizer to evoke a Winnie the Pooh character who epitomizes impulsive action.
 
 > I figure, if you dig her, you should rejigger your bigger outrigger to channel that hair trigger digger, Tigger.
