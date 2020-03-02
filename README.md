@@ -36,6 +36,6 @@ The fattest, and notably anti-Russian, of the descendants of a notable French mi
 
 ---
 
-The mother of Christ, except she's was a jubiliant cheese pixie on her way to wed the Flash in Indiana
+The mother of Christ, except she's a jubiliant cheese pixie on her way to wed the Flash in Indiana
 
 > Merry dairy fairy Mary to marry Barry in Gary
