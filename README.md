@@ -1,6 +1,12 @@
-In order to repair the mental health, or metaphorically “get out the pests”, of my enraged friend’s walking pattern, we had to get rid of his girlfriend’s insistence to spread (but oddly not bring in), lavishly adorned Middle Eastern license plates, which were meant to serve as enticing fashion pieces that were throwing off his balance.
+The boring tour guide, who is locally notable for his propensity to lend street rocks to beer connoisseurs, has severely understated the gravity of the situation. With it’s profound physiological AND behavior effects (much like hormones that begin natural production during puberty), the black market for meth poses a deceptively nefarious, and potentially obstructive, issue for the French Prestident’s landmark domestic policy, which was particularly locally focused.
 
-> To rehabilitate, or intellectually fumigate, the gait of my irate mate, we had to excommunicate the mandate of his straight date to proliferate (but oddly not repatriate) the ornate Kuwait nameplate, a counterweight meant to decorate and titillate.
+> The monotone chaperone, known to loan cobblestone to fellow cicerone, has under-blown the tone. With a hormone (testosterone and/or progesterone) prone to dethrone the whole Macron’s Francophile touchstone, unbeknown methadone is to bemoan, or even postpone, the relatively homegrown milestone keystone.
+
+---
+
+In order to repair the health of, or allegorically rid of pests, my enraged friend’s walking pattern, we had to get rid of his girlfriend’s insistence to spread (but oddly not bring in), lavishly adorned Middle Eastern license plates, which were meant to serve as enticing fashion pieces that were throwing off his balance.
+
+> To rehabilitate, or metaphorically fumigate, the gait of my irate mate, we had to excommunicate the mandate of his straight date to proliferate (but oddly not repatriate) the ornate Kuwait nameplate, a counterweight meant to decorate and titillate.
 
 ---
 
