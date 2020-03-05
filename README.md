@@ -1,8 +1,8 @@
 ![](why.png)
 
-To imply the overhaul of that horrific institution best known for that obscenely boring fat person, who happens faithful to their partner, is to imply the attribution of the clergy’s disciples, whom have been excommunicated as infidels.
+To imply the overhaul of that horrific institution best known for the debacle involving that obscenely boring fat person, who happens faithful to their partner, is to imply the attribution of the clergy’s disciples, whom have been excommunicated as infidels, to themelves.
 
-> To topple the apocryphal acropolis synonymous with that preposterously monogamous monotonous hippopotamus apocalypse postulates that the apostolate apostrophizes its  apostatic apostle.
+> To topple the apocryphal acropolis synonymous with that preposterously monogamous monotonous hippopotamus apocalypse postulates that the apostolate apostrophizes its apostatic apostle.
 
 ---
 
