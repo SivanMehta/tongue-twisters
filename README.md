@@ -12,7 +12,7 @@ The boring tour guide, who is locally notable for his propensity to lend street 
 
 ---
 
-In order to repair the health of, or allegorically rid of pests, my enraged friend’s walking pattern, we had to get rid of his girlfriend’s insistence to spread (but oddly not bring in), lavishly adorned Middle Eastern license plates, which were meant to serve as enticing fashion pieces that were throwing off his balance.
+In order to repair the health of, or allegorically rid of pests, my enraged friend’s walking pattern, we had to get rid of his girlfriend’s insistence to spread (but suprisingly not bring in), lavishly adorned Middle Eastern license plates, which were meant to serve as enticing fashion pieces that were throwing off his balance.
 
 > To rehabilitate, or metaphorically fumigate, the gait of my irate mate, we had to excommunicate the mandate of his straight date to proliferate (but oddly not repatriate) the ornate Kuwait nameplate, a counterweight meant to decorate and titillate.
 
