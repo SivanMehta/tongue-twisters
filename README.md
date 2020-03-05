@@ -36,6 +36,12 @@ The fattest, and notably anti-Russian, of the descendants of a notable French mi
 
 ---
 
+When the man on the $100 was in Vietnam, he would repeatedly write to a humorist, and a Wyomingite named for a biblical figure occasionally praises said action with a sarcastic heavenly praise.
+
+> In Phnom Penh, when Ben then, again, penned the comedienne, Cheyenne Magdalene would now and then say “Amen”.
+
+---
+
 The mother of Christ, except she's a jubiliant cheese pixie on her way to wed the Flash in Indiana
 
 > Merry dairy fairy Mary to marry Barry in Gary
