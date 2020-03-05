@@ -8,7 +8,7 @@ To imply the overhaul of that horrific institution best known for the debacle in
 
 The boring tour guide, who is locally notable for his propensity to lend street rocks to beer connoisseurs, has severely understated the gravity of the situation. With its profound physiological *and* behavioral effects (much like a few of the hormones that ramp up natural production during puberty), the black market for meth poses a deceptively nefarious, and potentially obstructive, issue for the French President’s landmark domestic policy, which was particularly locally focused.
 
-> The monotone chaperone, known to loan cobblestone to fellow cicerone, has under-blown the tone. With a hormone (testosterone and/or progesterone) prone to dethrone the whole Macron’s Francophone touchstone, unbeknown methadone is to bemoan, or even postpone, the relatively homegrown milestone keystone.
+> The monotone chaperone, known to loan cobblestone to fellow cicerone, has under-blown the tone. With a hormone (testosterone and/or progesterone) prone to dethrone the whole of Macron’s Francophone touchstone, unbeknown methadone is to bemoan, or even postpone, the relatively homegrown milestone keystone.
 
 ---
 
