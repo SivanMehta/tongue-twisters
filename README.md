@@ -36,7 +36,7 @@ When on the way from Thailand, intending to evaluate a French-style bread in Kat
 
 ---
 
-The fattest, and notably anti-Russian, of the descendants of a notable French military generally was aroused by the wide array of misery be brought about by the arrangement of egg-based salad dressing, which were placed in the smaller commissary.
+The fattest, and notably anti-Russian, of the descendants of a notable French military generally was aroused by the wide array of misery brought about by the arrangement of egg-based salad dressing, which were placed in the smaller commissary.
 
 > Brett, the heavyset Lafayette, was wet from the roulette of Soviet regret beget by the vignette of omelette vinaigrette in the kitchenette.
 
