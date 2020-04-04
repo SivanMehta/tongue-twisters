@@ -1,5 +1,11 @@
 ![](why.png)
 
+Honestly, this “cute” little proximity to the epicenter of the deadly tuberculosis is so brazen that coming down with epitome of dangerous, and potentially paralytic, blood clotting seems relatively safe and beneficial from years of medical precedent, despite its glaringly obvious peril.
+
+> Ya know sis, the precocious closeness of the focus of the ferocious tuberculosis is so braggadocious that a diagnosis of an apotheosis of atrocious thrombosis seems supercalifragilisticexpealodocious, not hopeless
+
+---
+
 To imply the overhaul of that horrific institution best known for the debacle involving that obscenely boring fat person, who happens faithful to their partner, is to imply the attribution of the clergy’s disciples, whom have been excommunicated as infidels, to themelves.
 
 > To topple the apocryphal acropolis synonymous with that preposterously monogamous monotonous hippopotamus apocalypse postulates that the apostolate apostrophizes its apostatic apostles.
