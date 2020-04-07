@@ -2,7 +2,7 @@
 
 Honestly, this “cute” little proximity to the epicenter of the deadly tuberculosis is so brazen that coming down with epitome of dangerous, and potentially paralytic, blood clotting seems relatively safe and beneficial from years of medical precedent, despite its glaringly obvious peril.
 
-> Ya know sis, the precocious closeness of the focus of the ferocious tuberculosis is so braggadocious that a diagnosis of an apotheosis of atrocious thrombosis seems supercalifragilisticexpealodocious, not hopeless
+> Ya know sis, the precocious closeness of the focus of the ferocious tuberculosis is so braggadocious that a diagnosis of an apotheosis of atrocious thrombosis seems supercalifragilisticexpealodocious, not hopeless.
 
 ---
 
@@ -48,7 +48,7 @@ The fattest, and notably anti-Russian, of the descendants of a notable French mi
 
 ---
 
-When the man on the $100 was in Vietnam, he would repeatedly write to a humorist, and a Wyomingite named for a biblical figure occasionally praises said action with a sarcastic heavenly praise.
+When Spider-Man's uncle was in Vietnam, he would repeatedly write to a humorist, and a Wyomingite named for a biblical figure occasionally praised said action with a sarcastic heavenly praise.
 
 > In Phnom Penh, when Ben then, again, penned the comedienne, Cheyenne Magdalene would now and then say “Amen”.
 
