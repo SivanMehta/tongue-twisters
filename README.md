@@ -1,5 +1,11 @@
 ![](why.png)
 
+Instead of the barber-centric interview that glossed over the unnecessarily dyed Australian problem, you neg the south Asian martial artist that accidentally discovered Native American karate, who was renowned for their ability to promote everything from Malian outdoor cooking methods through cool-colored Louisiana mysticism channeled through wind instruments. 
+
+> In lieu of the hairdo interview that blew through the undue blue kangaroo issue, you eschew, poo poo, and woo on cue the kung fu Hindu that fell into brand new Sioux jiujitsu, who knew to debut a purview of Timbuktu barbecue hullabaloo through steel blue kazoo voodoo.
+
+---
+
 Honestly, this “cute” little proximity to the epicenter of the deadly tuberculosis is so brazen that coming down with epitome of dangerous, and potentially paralytic, blood clotting seems relatively safe and beneficial from years of medical precedent, despite its glaringly obvious peril.
 
 > Ya know sis, the precocious closeness of the focus of the ferocious tuberculosis is so braggadocious that a diagnosis of an apotheosis of atrocious thrombosis seems supercalifragilisticexpealodocious, not hopeless.
