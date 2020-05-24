@@ -1,8 +1,8 @@
 ![](why.png)
 
-Instead of the barber-centric interview that glossed over the unnecessarily dyed Australian problem, you neg the south Asian martial artist that accidentally discovered Native American karate, who was renowned for their ability to promote everything from Malian outdoor cooking methods through cool-colored Louisiana mysticism channeled through wind instruments. 
+Instead of the barber-centric interview that glossed over the unnecessarily dyed Australian problem, you neg the south Asian martial artist that accidentally discovered Native American karate, who was renowned for their ability to promote anything, from Malian outdoor cooking methods through cool-colored Louisiana mysticism channeled through wind instruments, with great effect. 
 
-> In lieu of the hairdo interview that blew through the undue blue kangaroo issue, you eschew, poo poo, and woo on cue the kung fu Hindu that fell into brand new Sioux jiujitsu, who knew to debut a purview of Timbuktu barbecue hullabaloo through steel blue kazoo voodoo.
+> In lieu of the hairdo interview that blew through the undue blue kangaroo issue, you eschew, poo poo, and woo on cue the kung fu Hindu that fell into brand new Sioux jiujitsu, who knew to debut a breakthrough purview, from Timbuktu barbecue hullabaloo through steel blue kazoo voodoo, out the wazoo.
 
 ---
 
