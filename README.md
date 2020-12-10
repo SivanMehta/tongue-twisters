@@ -1,4 +1,6 @@
-![](why.png)
+<div style="text-align:center">
+ <img src="/SivanMehta/tongue-twisters/raw/master/why.png" />
+</div>
 
 What do you call a danish brick-oriented toy dog without the figurine of it’s owner, who is a paraplegic depiction of Orlando Bloom’s character from lord of the Rings?
 
