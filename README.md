@@ -2,9 +2,9 @@
   <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
 </p>
 
-What do you say to danish brick-oriented toy woman without the figurine of a rope hoop that belongs to its significant other, who is a paraplegic depiction of Orlando Bloom’s character from lord of the Rings, who has taken your toy waffles and is herself paraplegic?
+Please return my toy waffles, you paraplegic toy woman who is without your toy, paraplegic, significant other's toy rope.
 
-> Leggo my LEGO Eggo, legless LEGO lass less legless lego legolass' lasso
+> Leggo my LEGO Eggo, legless LEGO lass less legless LEGO Legolas' LEGO lasso
 
 ---
 
