@@ -2,7 +2,7 @@
   <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
 </p>
 
-Please return my toy waffles, you paraplegic toy woman who is without your toy, paraplegic, significant other's toy rope.
+Please return my toy waffles, you paraplegic toy woman who is without your toy, paraplegic, famously fantastical significant other's toy rope.
 
 > Leggo my LEGO Eggo, legless LEGO lass less legless LEGO Legolas' LEGO lasso
 
