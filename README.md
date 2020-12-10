@@ -1,6 +1,6 @@
-<div style="text-align:center">
- <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
-</div>
+<p align="center">
+  <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
+</p>
 
 What do you call a danish brick-oriented toy dog without the figurine of it’s owner, who is a paraplegic depiction of Orlando Bloom’s character from lord of the Rings?
 
