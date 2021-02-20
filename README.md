@@ -2,7 +2,7 @@
   <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
 </p>
 
-Oh hi there my friend! The currently in flight Jewish spiritual leader leg indicates that in your multicolor neckpiece there is French livestock pest. However I will vociferously assert that non-acidic desserts can turn into bone, because it then follows that people from Borneo devote themselves to an esoteric combination of obsure Spanish sport and middle school in order to increase their inner beauty, which they refer to as their "innate butterfly".
+Oh hi there my friend! The currently in flight Southeast Asian Jewish spiritual leader leg indicates that in your multicolor neckpiece there is French livestock pest. However I will vociferously assert that non-acidic desserts of Americana can turn into bone, because it then follows that people from Borneo devote themselves to an esoteric combination of obsure Spanish sport and middle school in order to increase their inner beauty, which they refer to as their "innate butterfly".
 
 > My oh my! Why hi, my guy! Thy sky high Shanghai rabbi thigh belies that in thy tie dye bow tie lie a Versailles gadfly; whereby I deny (not glorify) that an alkali apple pie may ossify to imply that Brunei alumni abide by jai alai and junior high to magnify the butterfly of their minds’ eye.
 
