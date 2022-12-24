@@ -2,7 +2,19 @@
   <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
 </p>
 
-Oh hi there my friend! The currently in flight Southeast Asian Jewish spiritual leader leg indicates that in your multicolor neckpiece there is French livestock pest. However I will vociferously assert that non-acidic desserts of Americana can turn into bone, because it then follows that people from Borneo devote themselves to an esoteric combination of obsure Spanish sport and middle school in order to increase their inner beauty, which they refer to as their "innate butterfly".
+> Were the saboteur liqueur transfer to occur, her pure voyeur could stir Monseiur Kerr's entreprenaur to spur a rancateur to incur a chauffeur to blur the demure restauranteur.
+
+If the illegal alcohol transfer to happen, her raw, unadulerated sex appeal would arouse Steve Kerr so much that he would call up his business manager to arrange a meeting with a revolutionary so that they could coerce a driver to blind the depressed diner owner.
+
+---
+
+> Instead of instancing mysteriously synthesized instruments, mistakenly instantaneously instigating a crystalline cyst of cystic sepsis, instruct institutes to instinctually install intrinsically islamist Eisensteins to reinstate constituent panthesis.
+
+In place of creating copies of surreptitiously generated guitars, accidentally activating an underground boil of rotten flesh immediately, tell the universities to follow their guts and put natively Muslim Eraserhead cosplayers to the task of recreating their respective polytheistic theologies.
+
+---
+
+Oh hello there my friend! The currently in flight Southeast Asian Jewish spiritual leader leg indicates that in your multicolor neckpiece there is French livestock pest. However I will vociferously assert that non-acidic desserts of Americana can turn into bone, because it then follows that people from Borneo devote themselves to an esoteric combination of obsure Spanish sport and middle school in order to increase their inner beauty, which they refer to as their "innate butterfly".
 
 > My oh my! Why hi, my guy! Thy sky high Shanghai rabbi thigh belies that in thy tie dye bow tie lie a Versailles gadfly; whereby I deny (not glorify) that an alkali apple pie may ossify to imply that Brunei alumni abide by jai alai and junior high to magnify the butterfly of their minds’ eye.
 
@@ -10,7 +22,7 @@ Oh hi there my friend! The currently in flight Southeast Asian Jewish spiritual 
 
 Please return my toy waffles, you paraplegic toy woman who is without your toy, paraplegic, famously fantastical significant other's toy rope.
 
-> Leggo my LEGO Eggo, legless LEGO lass less legless LEGO Legolas' LEGO lasso
+> Leggo my LEGO Eggo, legless LEGO lass- less legless LEGO Legolas' LEGO lasso
 
 ---
 
