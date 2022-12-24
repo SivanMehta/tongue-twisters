@@ -2,15 +2,15 @@
   <img src="https://raw.githubusercontent.com/SivanMehta/tongue-twisters/master/why.png" />
 </p>
 
-> Were the saboteur liqueur transfer to occur, her pure voyeur could stir Monseiur Kerr's entreprenaur to spur a rancateur to incur a chauffeur to blur the demure restauranteur.
-
 If the illegal alcohol transfer to happen, her raw, unadulerated sex appeal would arouse Steve Kerr so much that he would call up his business manager to arrange a meeting with a revolutionary so that they could coerce a driver to blind the depressed diner owner.
+
+> Were the saboteur liqueur transfer to occur, her pure voyeur could stir Monseiur Kerr's entreprenaur to spur a rancateur to incur a chauffeur to blur the demure restauranteur.
 
 ---
 
-> Instead of instancing mysteriously synthesized instruments, mistakenly instantaneously instigating a crystalline cyst of cystic sepsis, instruct institutes to instinctually install intrinsically islamist Eisensteins to reinstate constituent panthesis.
-
 In place of creating copies of surreptitiously generated guitars, accidentally activating an underground boil of rotten flesh immediately, tell the universities to follow their guts and put natively Muslim Eraserhead cosplayers to the task of recreating their respective polytheistic theologies.
+
+> Instead of instancing mysteriously synthesized instruments, mistakenly instantaneously instigating a crystalline cyst of cystic sepsis, instruct institutes to instinctually install intrinsically islamist Eisensteins to reinstate constituent panthesis.
 
 ---
 
